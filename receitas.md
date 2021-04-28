@@ -1065,7 +1065,7 @@
 
         - Rende: 2 Porções - Pronto em 30 minutos
 
-Travessa
+### Travessa
 
     Ingredientes
 
@@ -1110,14 +1110,15 @@ Travessa
 
     Modo de Preparo
 
-        - Cozinhe em fogo brando até que esteja dourada de um lado. Com uma Espátula, vire e deixe que doure também do outro lado.
-
         - Coloque a Farinha numa tigela, faça uma cova no centro e junte o ovo; acresente metade do leite e mexa com um garfo até que esteja liso.
 
         - Adicione o leite restante e continue batendo, até a superfície ficar coberta de bolhas. Cubra e deixe descansar na geladeira por 1 hora.
+        
+        - Derreta um pouco de manteiga numa frigideira; vire-a para untá-la uniformemente e retire o excedente.
 
         - Despeje um pouco de massa e incline a frigideira para que a massa espalhe e cubra o fundo.
 
+        - Cozinhe em fogo brando até que esteja dourada de um lado. Com uma Espátula, vire e deixe que doure também do outro lado.
+        
         - Deixe deslizar a panqueca pronta sobre papel manteiga e continue até terminar a massa. Mantenha-as quentes até terminar.
 
-        - Derreta um pouco de manteiga numa frigideira; vire-a para untá-la uniformemente e retire o excedente.
