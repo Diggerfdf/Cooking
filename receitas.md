@@ -114,7 +114,7 @@
 
 ## Doces
 
-### Cookies de Café
+### Cookies de Café I
 
     Ingredientes
 
@@ -132,6 +132,8 @@
         - Em um recipiente, misture a água com o café solúvel. Em seguida, junte todos os ingredientes e misture bem. Modele os cookies, acomode-os em uma assadeira untada e leve-os ao forno em temperatura média por cerca de 15 minutos.
 
         - Dica: Sirva com achocolatados ou Café Forte.
+
+### [Cookie de café com cacau - Minha Vida](https://www.minhavida.com.br/receitas/materias/30538-cookie-de-cafe-com-cacau-receita-light-e-saborosa)
 
 ### [Cookies de café - Tudo gostoso](https://www.tudogostoso.com.br/receita/89047-cookies-de-cafe-e-chocolate.html)
 
