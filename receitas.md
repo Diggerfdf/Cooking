@@ -60,6 +60,23 @@
 
         - Leve a água para aquecer até criar bolhas de ar. Em seguida, coloque a rodela de gengibre e deixe por 5 minutos. Coe e esprema o suco de limão. Adoce com mel e sirva em jejum.
 
+### Chá da Prosperidade
+
+    Ingredientes:
+
+        - 3 Aniz Estrelado
+        - 3 Cravo da Índia
+        - Erva Doce (à vontade)
+        - Açucar Mascavo (à vontade)
+        - Canela em pau (Opcional)
+
+    Modo de Preparo
+
+        - Numa base de 2 Litros de Chá Mate, Adicione os ingredientes.
+        - Pode "refogar o Aniz e o Cravo no Açúcar Mascavo, preparando os ingredientes numa base de caramelo.
+
+    6 litros de chá, 9 Aniz, 9 Cravo, cerca de 10 paus de canela.
+
 ### Cappuccino em pó
 
     Ingredientes
@@ -512,7 +529,6 @@
         - À parte, misture delicadamente a clara em neve com a gema e acrescente à massa. Mexa bem novamente, adicione um pouco mais de farinha, cubra o recipiente com um pano e deixe descansar por 40 minutos.
 
         - Após o descanso, abra a massa em uma superfície enfarinhada com a ajuda de um rolo e forme um retângulo. Em seguida, passe a margarina e polvilhe o açucar refinado misturado com a canela em pó. Por fim, enrole como um rocambole e leve ao forno médio, pré-aquecido (250 °C), por cerca de 30 minutos
-
 
 ### Pão Prático
 
