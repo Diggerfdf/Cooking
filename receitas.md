@@ -1062,6 +1062,56 @@
 
             30 minutos
 
+### [COMO FAZER KIBE CRU | Receitas do Líbano | Mohamad Hindi](https://www.youtube.com/watch?v=FB0AdLuY1dU)
+
+    Ingredientes
+
+        (Kibe cru)
+        - Trigo para kibe
+        - Carne moída
+        - Tempero sírio
+        - Sal
+        - Azeite
+
+        (Tempero Sírio)
+        - Semente de coentro
+        - Pimenta-do-reino branca
+        - Pimenta-do-reino
+        - Pimenta-da-Jamaica
+        - Canela
+        - Cominho
+        - Páprica doce
+
+        (Acompanhamentos)
+        - Picles de cebola
+        - Coalhada seca
+        - Broto de beterraba
+        - Rúcula
+        - Rabanete
+        - Pão sírio
+
+### [KIBE CRU | Amador vs Profissional | Mohamad Hindi feat Jamili Abdouni](https://www.youtube.com/watch?v=L3bs_sOKSkw)
+
+### [RECEITA DE KIBE CRU! Receita original libanesa!](https://www.youtube.com/watch?v=sh9Rtz1xvk8)
+
+    Ingredientes
+
+        - 3 copos e meio de trigo fino
+        - 1kg de carne patinho moído (a carne deve estar bem fresca, sem gordura, moer 2 vezes ou mais)
+        - 2 copos de água gelada
+        - Sal a gosto
+        - Pimenta síria e/ou tempero baiano a gosto
+        - Canela em pó
+
+    Modo de preparo
+
+        - Lave o trigo 2 vezes em água corrente (igual quando lava-se o arroz), escorra a água e deixe descansar por 30 minutos
+        - Deixe a carne no freezer por alguns minutos para que fique bem gelada.
+        - Bata a carne no processador ou liquidificador até que fique com a consistência de patê.
+        - Junte a carne ao trigo até que a mistura fique homogênea, misture o sal e temperos à gosto.
+
+        Sirva com azeite. Folhas de hortelã e cebola são excelentes acompanhamentos para o kibe cru. Consuma imediatamente.
+
 ## Omeletes
 
 ### Espanhola
